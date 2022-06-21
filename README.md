@@ -1,2 +1,0 @@
-# Khan7
-Afghanistan
